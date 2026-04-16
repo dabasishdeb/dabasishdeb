@@ -25,8 +25,8 @@ Includes real-time alerts & secure dashboard
 🔥 Streak Stats
 
 🌐 Connect With Me
-📧 Email: your-email@example.com
-💼 LinkedIn: https://linkedin.com/in/your-profile
+📧 Email:dabasishrrr@gmail.com
+💼 LinkedIn: https:
 🌍 Portfolio: Coming Soon...
 🧠 Currently Learning
 📌 Advanced Java
